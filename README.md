@@ -14,3 +14,14 @@
 >### *With name of God at College Gurudwara we started our day.*
 >
 >![Image](https://github.com/user-attachments/assets/8440eac4-4f35-419d-b299-66052f26faee)
+#### 🕛 9:30 AM - 10:00 AM
+> There was a tea with snack program for all students.
+#### 🕛 10:00 AM Onwards 
+ From 10 AM onwards , the Inaugural begeins
+
+
+
+
+
+
+
